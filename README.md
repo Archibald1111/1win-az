@@ -2,7 +2,7 @@
 1win saytında qeydiyyatdan keçin və şəxsi məlumatlarınızı daxil edin
 1win saytında necə qeydiyyatdan keçmək olar?
 1win veb saytı ilə işləyə bilmək üçün qeydiyyatdan keçməlisiniz. Bunun üçün səhifənin yuxarı sağ küncündə yerləşən “Qeydiyyatdan keç” düyməsini sıxmaq lazımdır. Sonra ulduzla işarələnmiş sorğu vərəqəsində bütün sahələri doldurmalısınız. Bu adətən ad, soyad, doğum tarixi, e-poçt ünvanı və telefon nömrəsidir. Siz həmçinin parol təyin etməli və oynamaq istədiyiniz valyutanı göstərməlisiniz.
-
+https://1win-az.net/
 Şəxsi məlumatları 1win veb saytına necə daxil edə bilərəm?
 Saytda qeydiyyatdan keçdikdən sonra qazandığınız pulu çıxarmaq üçün şəxsi hesabınıza özünüz haqqında ətraflı məlumat daxil etməlisiniz. Şəxsi hesabın parametrləri səhifəsində tam adınızı, yaşayış ünvanınızı, pasport məlumatlarınızı və digər məlumatları təqdim edə bilərsiniz. Məlumatlar düzgün daxil edilməlidir, çünki məlumatların səhv və ya natamam olduğu halda geri götürmə ilə bağlı problemlər yarana bilər.
 
